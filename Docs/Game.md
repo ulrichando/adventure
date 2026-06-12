@@ -16,7 +16,7 @@ angely workder
 
 A: Dongens
 1 Soccer Die or win : armel area 1
-2 Hell Simulator : Noah area 2
+2 inferno lagends : Noah area 2
 3 Mobes & Boss Monsters : Nathan all area
 4 Obbey : ian area 3
 5 Fast & Furious: Mahel area 4
